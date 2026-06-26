@@ -52,6 +52,7 @@
 
 ## 📫 Connect With Me
 
+* 💼 LinkedIn: www.linkedin.com/in/eva-cristóbal-alonso
 * 📧 Email: eva.cristobal.alonso@gmail.com
 
 ---
